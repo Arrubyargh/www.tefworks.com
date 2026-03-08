@@ -1,1 +1,1 @@
-# davidnewton.ca
+# www.digitalsophistry.com
